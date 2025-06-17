@@ -38,7 +38,7 @@ Busco unir **tecnologia, educação e inovação** para formar profissionais cr�
 
 - ✉️ **giovanegalvao@gmail.com**
 - 💼 [LinkedIn](https://www.linkedin.com/in/giovane-galv%C3%A3o-b5482b86/)
-- 🌐 [http://lattes.cnpq.br/2294070244426158]
+- 🌐 [Lattes](http://lattes.cnpq.br/2294070244426158)
 
 ---
 
